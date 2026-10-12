@@ -1,0 +1,1 @@
+# bangkoku-oct-2026
